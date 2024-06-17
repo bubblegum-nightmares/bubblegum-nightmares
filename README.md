@@ -2,10 +2,10 @@
 *bubble - endosys <br>
 proship - propara <br>
 pro weird and confusing ids <br>
-certified lurker and eavesdropper* 
-
-
-
+certified lurker and eavesdropper <br>* 
+<br>
+*✓ whisp . . ✓ boop <br>
+c + h only if i know and like u <br>*
 —————————— <br>
                             ┊┊┊┊ ➶ ❁۪ ｡˚  ✧ <br>
                             ┊┊┊✧ ⁺    ⁺ 　° <br>
@@ -13,4 +13,5 @@ certified lurker and eavesdropper*
                             ┊┊. <br>
                             ┊ ➶ ｡˚  　　° <br>
                             *.           *    · <br>
+
 

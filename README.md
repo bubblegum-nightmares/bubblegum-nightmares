@@ -1,3 +1,3 @@
-              bubble - endosys <br>
-              proship - propara <br>
+              bubble - endosys 
+              proship - propara 
               certified lurker and eavesdropper

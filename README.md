@@ -4,8 +4,9 @@ proship - propara <br>
 pro weird and confusing ids <br>
 certified lurker and eavesdropper <br>* 
 <br>
-*✓ whisp . . ✓ boop <br>
-c + h only if i know and like u <br>*
+*✓ whisp . . ✓ boop . . ✗ cover<br>
+c + h only if i know and like u <br>
+all omori skins are of my sysmates/family*<br>
 —————————— <br>
                             ┊┊┊┊ ➶ ❁۪ ｡˚  ✧ <br>
                             ┊┊┊✧ ⁺    ⁺ 　° <br>

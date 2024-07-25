@@ -8,7 +8,7 @@ certified lurker and eavesdropper <br>*
 c + h only if i know and like u <br>
 all omori skins are of my sysmates/family*<br>
 <br>
-no random friend requests please. at least talk to me first
+no random friend requests please. at least talk to me first<br>
 —————————— <br>
                             ┊┊┊┊ ➶ ❁۪ ｡˚  ✧ <br>
                             ┊┊┊✧ ⁺    ⁺ 　° <br>
